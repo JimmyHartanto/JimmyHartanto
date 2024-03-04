@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JimmyHartanto
+- 👀 I’m interested in technologies
+- 🌱 I’m currently learning some new language:D
+- 📫 Easily to find me! 
+- 😄 Jimii is here
